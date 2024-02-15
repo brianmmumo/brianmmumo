@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Web development 
 - 🌱 I’m currently learning ...BSc IT
 - 💞️ I’m looking to collaborate on ...yeah sure 
-- 📫 How to reach me ...0112753387 or my email baqinkd@gmail.com
+- 📫 How to reach me ...0112753387 or my email baqinks@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
